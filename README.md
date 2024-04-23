@@ -1,1 +1,0 @@
-# Jaydar.Github.io
